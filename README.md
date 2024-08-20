@@ -4,5 +4,5 @@
 - 💞️ estudo na escola senador casemiro da rocha pei
 - 😄 Pronome:ela dela
 - ⚡ diversão: jogar futebol
+  ![bien](https://media1.tenor.com/m/V1IVHCMLvXAAAAAC/hi-princess-bean.gif)
 
-![bien de desencanto](https://tenor.com/pt-BR/view/hi-princess-bean-disenchantment-hello-hey-gif-6292114839981243760)
